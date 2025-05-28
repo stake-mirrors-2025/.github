@@ -15,7 +15,7 @@
 
 | WW Зеркала                        | RU Зеркала                         |
 |----------------------------------|----------------------------------|
-| [stake.bet](https://stake.bet/?c=E21eRDVa)           | stake1038.com (https://stake1018.com/?c=E21eRDVa)           |
+| [stake.bet](https://stake.bet/?c=E21eRDVa)           | [stake1038.com](https://stake1038.com/?c=E21eRDVa)           |
 | [stake.ac](https://stake.ac/?c=E21eRDVa)             | [stake1017.com](https://stake1017.com/?c=E21eRDVa)              |
 | [stake.games](https://stake.games/?c=E21eRDVa)       | [stake1018.com](https://stake1018.com/?c=E21eRDVa)              |
 | [stake.pet](https://stake.pet/?c=E21eRDVa)           | [stake1019.com](https://stake1019.com/?c=E21eRDVa)              |
